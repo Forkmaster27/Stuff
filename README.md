@@ -1,2 +1,4 @@
 # Stuff
-Projects free of sense/ were I am stuck
+Projects were I am stuck
+
+please feel free to download, copyright Forkmaster27.
